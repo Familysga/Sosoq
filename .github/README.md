@@ -1,2 +1,2 @@
-## أذڪࢪ حقوقي [Ahmed](t.me/bbnnq) 🤍🔥. 
-## قناتي: https://t.me/cczza 🤍🔥. 
+## أذڪࢪ حقوقي [salam](t.me/A1DIIU) 🤍🔥. 
+## قناتي: https://t.me/A1DIIU 🤍🔥. 
